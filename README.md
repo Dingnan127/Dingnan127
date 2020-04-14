@@ -19,5 +19,5 @@
 提取码：22e7
 
 第七、八周录屏作品：
-链接：链接：https://pan.baidu.com/s/1YaLss1wzIgJcd9sQQ7YhGQ 
+链接：https://pan.baidu.com/s/1YaLss1wzIgJcd9sQQ7YhGQ 
 提取码：m567 
