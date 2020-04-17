@@ -21,3 +21,11 @@
 第七、八周录屏作品：
 链接：https://pan.baidu.com/s/1YaLss1wzIgJcd9sQQ7YhGQ 
 提取码：m567 
+
+期中录屏：
+链接：https://pan.baidu.com/s/1T6S0VlKoeKAr5KZKU2i5Bw 
+提取码：nqc1
+
+期中简报：
+链接：https://pan.baidu.com/s/187V_VvbyR0p6rbu0jB-Rxw
+提取码：pff6
