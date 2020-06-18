@@ -47,3 +47,7 @@
 第十七、十八周录屏作品：
 链接：https://pan.baidu.com/s/1K4qi5rYGhmLQw9lYO9-bog 
 提取码：htfe
+
+对第七、八周录屏作品修订：
+链接：https://pan.baidu.com/s/1ieI8eThQfq2Q-jBDT5zG5g
+提取码：m66v
